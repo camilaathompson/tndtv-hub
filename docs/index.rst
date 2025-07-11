@@ -4,11 +4,6 @@
 
 How to Contact TND TV Customer Care Number? 📺
 ============================================
-.
-
-.. toctree::
-   :maxdepth: 2
-   :caption: Contents:
 
 In the world of streaming services, TND TV has rapidly gained popularity for its rich content library and user-friendly interface. Whether you're a casual viewer or a binge-watcher, TND TV brings entertainment right to your screens. However, even the best streaming platforms can face occasional glitches, billing issues, or account problems. When these challenges arise, knowing how to contact the tnd tv customer care number becomes essential.
 
